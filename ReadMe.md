@@ -1,2 +1,2 @@
 # BySyntaxYT
-http://clickgames.tk/
+http://clickgames.tk/partner.html
